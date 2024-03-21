@@ -1,0 +1,1 @@
+# templet_2_jainish_solanki
